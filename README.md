@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @FrozenLizard633
-- 👀 I’m interested in vidéo-games
+- 👀 I’m interested in video-games
 - 🌱 I’m currently learning nothing for the moment but would be interested in Java and Python 
 - 💞️ I’m looking to collaborate on nothing since I can't do shit exept translation between FR-ENG
 - 📫 How to reach me on X via @an_d2l
